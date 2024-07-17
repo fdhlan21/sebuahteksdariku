@@ -1,0 +1,2 @@
+# sebuahteksdariku
+bismillah
